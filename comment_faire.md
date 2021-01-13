@@ -15,6 +15,4 @@ les uns des autres; ils grandiront à la cuisson.
 
 Enfourner pour 10 minutes.
 
-Bonjour
-Pouet
-Coucou
+Bon appétit !
