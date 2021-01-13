@@ -18,5 +18,3 @@ Enfourner pour 10 minutes.
 Dresser et déguster !
 
 Bon appétit !
-
-Machin
