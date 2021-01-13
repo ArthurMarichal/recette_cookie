@@ -19,4 +19,4 @@ Dresser et déguster !
 
 Bon appétit !
 
-Machin
+Machin bidule truc
