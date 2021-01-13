@@ -14,4 +14,3 @@ Beurrer une plaque allant au four et former les cookies sur la plaque.
 les uns des autres; ils grandiront à la cuisson.
 
 Enfourner pour 10 minutes.
-chjcfj
