@@ -8,3 +8,5 @@ Les morceauxde chocolat n'ayant pas fondu, à la surprise de Ruth, sont en réal
 Nestlé, qui songeait à arrêter la fabrication de ce chocolat, envoya un représentant sur place afin de découvrir la raison du succès local de leur chocolat.
 
 Puis André Nestlé et Ruth Wakefield convinrent d'un accord : la firme Nestlé pourrait utiliser la recettede Ruth et le nom de l'auberge, à condition que la recette des cookies soir imprimée sur l'emballage et que Ruth soit approvisionnée en chocolat Nestlé variété.
+
+La Seconde Guerre mondiale, et le brassage de tous les GI venant de différents Etats des Etats-Unis, assurèrent la diffusion de cette recette de Nouvelle Angleterre : les cookies, délicieux, hautement énergétiques sous faible volume et supportant bien le transport vers les théâtres d'opérations extérieures eurent un énorme succès, et Nestlé en bénéficia.
